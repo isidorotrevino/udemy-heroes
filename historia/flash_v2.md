@@ -1,3 +1,0 @@
-# Flash
-
-La historia de flash...
